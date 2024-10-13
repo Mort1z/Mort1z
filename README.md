@@ -2,11 +2,13 @@
  I’m interested in rdr2 more!!
   , I’m currently learning spanish..
 - my pronouns: He/him
-— please don't b offended! i might send d3ath
+— please don't be offended! i might send d3ath
 threats.
 
 fandoms: FAITH,resident evil, rdr1/2, silent hill, call of duty and also Mortal Kombat !!
-freaky
+
+
+freaky...
 
 <!---
 Mort1z/Mort1z is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
