@@ -1,10 +1,11 @@
 — Hi, I’m Alejandro!!
- I’m interested in cod,re n rdr!:3
+ I’m interested in rdr2 more!!
   , I’m currently learning spanish..
 - my pronouns: He/him
 — please don't b offended! i might send d3ath
 threats.
 
+fandoms: FAITH,resident evil, rdr1/2, silent hill, call of duty and also Mortal Kombat !!
 freaky
 
 <!---
