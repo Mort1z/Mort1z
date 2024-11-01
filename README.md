@@ -8,7 +8,7 @@ threats.
 fandoms: FAITH,resident evil, rdr1/2, silent hill, call of duty and also Mortal Kombat !!
 
 
-freaky...
+mouthwashing fans dni!/j(PLASE INT WIH ME)
 
 <!---
 Mort1z/Mort1z is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
